@@ -11,3 +11,4 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/arizona-public/blob/main/4032--15.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/arizona-public/blob/main/4057--15.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/arizona-public/blob/main/4546--15.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/arizona-public/blob/main/4550--15.jpg)
